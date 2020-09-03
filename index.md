@@ -9,3 +9,6 @@
 [3. Length of stay is 2 years in Singapore but wanna try to be PR. Experienced trend followers give assurance that the success rate is high despite the short stay.](https://faceb0ok.github.io/unfairadvantage.io/length of stay 2 years wanna apply Malaysian.html)
 <br>
 <br>
+[4. Local dude 21 gets his 23 years old girlfriend, a Work Permit holder pregnant. Dude is relying on a few successful cases to get green light for his case. Will there be higher chances if the impregnator and the impregnated were non Chinese? Why does he sound so confident? Ministry of Manpower clearly states that a Work Permit holder cannot marry a Singaporean. Different race, different law?](https://faceb0ok.github.io/unfairadvantage.io/local dude gets WP holder Malaysian pregnant.html)
+<br>
+<br>
