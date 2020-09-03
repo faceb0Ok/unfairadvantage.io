@@ -1,4 +1,4 @@
-## Welcome to the Unfair Advantage files. The world needs to know about something that no one talks about.
+## Welcome to the Unfair Advantage files. The world needs to know about something that no one talks about. That is the ICA's strong bias in favor of (*drum roll*) __Malaysian Chinese__.  All of the data has been extracted from a very reputable forum which has been the main source of tips for expats in Singapore for a very long time.
 
 [1. Malaysian gets PR in 1 year](https://faceb0ok.github.io/unfairadvantage.io/Malaysian_gets_PR_in_1_year.html)
 <br>
