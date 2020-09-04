@@ -51,3 +51,7 @@
 <br>
 
 ### I can go on and on but you can see for yourself.  Just go to that source forum and key in Malaysian && Chinese && PR && approved. Grab some popcorn for unlimited entertainment if you are a Chinese. If not, grab yourself some panadol because your head is gonna boil.  If any content gets removed from that website, you should know that they probably got POFMA'd after this post went viral. But that doesn't mean that the unethical practices have come to a halt. 
+
+## I hope I don't get nabbed for speaking out a fact and quite an unfair one to be honest. This is something that needs to be corrected and if left status quo, it would give a very false impression on the hopefuls and they would waste and upset themselves in a very crtical manner in some cases, if they remain blind folded on such hidden information.  All the information has been up to date as of 3rd September 2020. 
+
+####################################################################################################################################################
