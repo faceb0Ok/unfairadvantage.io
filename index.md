@@ -27,9 +27,6 @@
 [9. She must be celebrating with her PR right now.  Malaysian Chinese gets full yellow light from the veterans in the forum. ](https://faceb0ok.github.io/unfairadvantage.io/Malaysian Chinese medical doctor working for 6 months gets high approval for PR.  Will other nationalities or race get the same result?.html)
 <br>
 <br>
-
-
-
-
-
-
+[10. An indian forum user gets told off for asking. Here's how -> "Changes required to increase your chances? - convert to Malaysian and change your race to Chinese Image Top" ](https://faceb0ok.github.io/unfairadvantage.io/indian gets told off.html)
+<br>
+<br>
