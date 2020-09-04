@@ -15,10 +15,7 @@
 [5. There is this thing called 'OTHERS' category which bluntly means any nationality/race other than Malaysian Chinese. This is not shown openly on the ICA website.  ](https://faceb0ok.github.io/unfairadvantage.io/Others Category which is Hidden.html)
 <br>
 <br>
-[6. The "problem" is you are not pure Chinese blood family. That's all. That means you get put into the others category which has an extremely limited number of yearly approvals. Honestly I don't think the debt issue has anything to do with it.
-
-Divorce your wife, wait a year or two and then remarry w pure Chinese woman (she must have Chinese name and ancestry) and apply again (if PR is that important).
-](https://faceb0ok.github.io/unfairadvantage.io/Malaysian dude marries lady from Myanmar..html)
+[6. The "problem" is you are not pure Chinese blood family. That's all. That means you get put into the others category which has an extremely limited number of yearly approvals. Honestly I don't think the debt issue has anything to do with it. Divorce your wife, wait a year or two and then remarry w pure Chinese woman (she must have Chinese name and ancestry) and apply again (if PR is that important).](https://faceb0ok.github.io/unfairadvantage.io/Malaysian dude marries lady from Myanmar..html)
 <br>
 <br>
 
