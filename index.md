@@ -12,3 +12,7 @@
 [4. Local dude 21 gets his 23 years old girlfriend, a Work Permit holder pregnant. Dude is relying on a few successful cases to get green light for his case. Will there be higher chances if the impregnator and the impregnated were non Chinese? Why does he sound so confident? Ministry of Manpower clearly states that a Work Permit holder cannot marry a Singaporean. Different race, different law?](https://faceb0ok.github.io/unfairadvantage.io/local dude gets WP holder Malaysian pregnant.html)
 <br>
 <br>
+[5. There is this thing called 'OTHERS' category which bluntly means any nationality/race other than Malaysian Chinese. This is not shown openly on the ICA website.  ](https://faceb0ok.github.io/unfairadvantage.io/Others Category which is Hidden.html)
+<br>
+<br>
+
