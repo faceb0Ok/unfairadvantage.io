@@ -24,6 +24,11 @@
 [8. Singapore is not ready for a PM who is ethnically Indian. That's why it adds tons of Malaysian Chinese every year to its prospective new citizens list. So don't blame yourself too much if your application gets rejected. ](https://faceb0ok.github.io/unfairadvantage.io/Singapore not ready for a non Chinese PM.html)
 <br>
 <br>
+[9. She must be celebrating with her PR right now.  Malaysian Chinese gets full yellow light from the veterans in the forum. ](https://faceb0ok.github.io/unfairadvantage.io/Malaysian Chinese medical doctor working for 6 months gets high approval for PR.  Will other nationalities or race get the same result?.html)
+<br>
+<br>
+
+
 
 
 
