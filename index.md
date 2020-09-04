@@ -18,5 +18,9 @@
 [6. Malaysian Chinese marries lady from Myanmar and tries to apply for PR. Gets rejected and the reason is (*drum roll*)The "problem" is you are not pure Chinese blood family. That's all. That means you get put into the others category which has an extremely limited number of yearly approvals. Honestly I don't think the debt issue has anything to do with it. Divorce your wife, wait a year or two and then remarry w pure Chinese woman (she must have Chinese name and ancestry) and apply again (if PR is that important).](https://faceb0ok.github.io/unfairadvantage.io/Malaysian dude marries lady from Myanmar..html)
 <br>
 <br>
+[7. He studied O levels and NUS here. Basically been brain washed enough.He’s young and has many years ahead of him to pay tax. He’s **chinese** and fulfills the racial harmony mix matrix equation. What more do you wanna ask for?](https://faceb0ok.github.io/unfairadvantage.io/Chinese keyword again.html)
+<br>
+<br>
+
 
 
