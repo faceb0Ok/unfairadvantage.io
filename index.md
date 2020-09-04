@@ -21,6 +21,10 @@
 [7. He studied O levels and NUS here. Basically been brain washed enough.He’s young and has many years ahead of him to pay tax. He’s **chinese** and fulfills the racial harmony mix matrix equation. What more do you wanna ask for?](https://faceb0ok.github.io/unfairadvantage.io/Chinese keyword again.html)
 <br>
 <br>
+[8. Singapore is not ready for a PM who is ethnically Indian. That's why it adds tons of Malaysian Chinese every year to its prospective new citizens list. So don't blame yourself too much if your application gets rejected. ](https://faceb0ok.github.io/unfairadvantage.io/Singapore not ready for a non Chinese PM.html)
+<br>
+<br>
+
 
 
 
