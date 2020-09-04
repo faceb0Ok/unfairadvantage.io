@@ -1,5 +1,11 @@
 ## Welcome to the Unfair Advantage files. The world needs to know about something that no one talks about. That is the ICA's strong bias in favor of (*drum roll*) __Malaysian Chinese__.  All of the data has been extracted from a very reputable forum which has been the main source of tips for expats in Singapore for a very long time.
 
+#First of all, let me introduce myself in an anonymous manner. I am currently a Software Developer working in Singapore full time. I arrived in Singapore as a 17 year old kid not knowing many things about the nature of this country. The moment I landed, I thought I had made the best choice of my life. Little did I know that, 10 years later, I would be taking on ICA, an extremely racist and bias authority who decides the fate of a person's life. 
+
+# Back to myself. I studied a tertiary diploma for 3 years and then went onto study at a top government university for 4 years before I got my degree. In total, I had spent a total of SGD 60,000 which does not include the exorbitant rental cost I paid for a bed in a small room. The cost of accomodation is unreasonably high in Singapore. Like it or not, you gotta live with it. Chinese landlords are out there to rip you. If possible, stay at a non chinese local property. I learnt it the hard way after more than 5 years. 
+
+# 
+
 [1. Malaysian gets PR in 1 year](https://faceb0ok.github.io/unfairadvantage.io/Malaysian_gets_PR_in_1_year.html)
 <br>
 <br>
